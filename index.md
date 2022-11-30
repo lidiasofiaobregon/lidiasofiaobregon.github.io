@@ -1,5 +1,6 @@
-Here you can say lots of fun things about your site.
+Just a girl with a right brain and left brain that are learning to get along. 
 
-Maybe say a some things about yourself.
+I'm a scientist, philospher, writer, and wannabe comedian. 
 
-Or maybe what you plan to blog about.
+Explore the philosophical implcations of current day events with me!
+
