@@ -1,0 +1,6 @@
+# 25 Grad School Decision Making Variables For You to Consider
+
+**Explanation:** My brain has this... *interesting* feature where it has to collect mass amounts of information before making a decision. The more severe and important the decision, the more data. This can be quite painful for me (in some instances) but it can also serve as a magnet for data collection. Thus, instead of wallowing in self-pity as I usually do, I've chosen to aggregate the data I've collected for you re: ***making a decision for which graduate school to attend***. During my PhD application process, I was offered 5 positions in 5 different program. Although *thank you baby Jesus!*, this was also sort of a living hell when it came to making a decision. The good news is I collected host of different opinions, advice, wisdom, and experiences. I've boiled this all down to 25 variables I think are important for making a grad school decision. With this being said, I recommend doing yourself a favor and selecting a subset of these variables that are important to YOU (i.e. 5-8) and focusing on those, so as to not overwhelm your brain when making a decision (Taking all 25 into considertation may or may not cause spontaneous combustion). I hope this helps. Happy deciding! 
+
+
+1.
