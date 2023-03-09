@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Blog Archive
+title: Inside Lidia's Brain
 ---
 
 {% for tag in site.tags %}
